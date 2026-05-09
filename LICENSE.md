@@ -1,4 +1,4 @@
-
+natural disaster survival Scripts automatic is the best natural disaster survival Script, featuring auto-upgrade and teleport. Safe and powerful for
 
 
 
